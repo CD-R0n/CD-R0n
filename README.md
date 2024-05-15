@@ -1,5 +1,5 @@
-*Trained Junior Front-End Developer with Back-End Affinity* 
-===========================================================
+Trained Junior Front-End Developer with Back-End Affinity 
+=========================================================
  
 I have been fascinated by how electronics and computers work since a young age. 
 After studying automation electronics, I worked in that field until I had the unique opportunity to start my own business. 
